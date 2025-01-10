@@ -1,4 +1,5 @@
-![Uploading IMG-20250110-WA0010.jpg…]()
+![IMG-20250110-WA0010](https://github.com/user-attachments/assets/271ced72-2066-4914-bcc2-6062e8c34ad6)
+![IMG-20250110-WA0009](https://github.com/user-attachments/assets/9839fcd0-8793-4efe-81d4-eb551bbde66a)
 # face-Scanner
 Here’s the rephrased version of your content:  
 
